@@ -6,7 +6,7 @@ cheats for playroom
 Downolad link: 
 
 # 💊 Cheats
-Cheats for game version: V8.0
+Cheats for game version: V0.28
 Downolad link:
 
 
